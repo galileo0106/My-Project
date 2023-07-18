@@ -1,8 +1,8 @@
 Hello
 
-I am Jay Simpson, from freelancer.com
-
-Since it is not possible to talk about external communication on a fiverr site, I share communication information here.
+I am Jay Simpson
+I have a good offer for you.
+Since it is not possible to talk about external communication on a this site, I share communication information here.
 
 Telegram: https://t.me/JaySimpson21 
 WhatsApp: +1 (571) 207-9226
