@@ -1,8 +1,8 @@
 Hello
 
-I am Pavel, from freelancer.com
+I am Jay Simpson, from freelancer.com
 
-Since it is not possible to talk about external communication on a freelancer site, I share communication information here.
+Since it is not possible to talk about external communication on a fiverr site, I share communication information here.
 
 Telegram: https://t.me/JaySimpson21 
 WhatsApp: +1 (571) 207-9226
