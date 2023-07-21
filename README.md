@@ -1,7 +1,7 @@
 Hello
 
 I am Jay Simpson
-I have a good offer for the security your fiverr account.
+I have a good offer for the safty of your fiverr account.
 Since it is not possible to talk about external communication on a this site, I share communication information here.
 We can discuss some issues for creating new freelancer.com account.
 
